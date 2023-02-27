@@ -17,4 +17,4 @@ Warto sprawdzić więcej informacji na stronie <a href="https://aeroporty.pl">Ae
 
 Wszystkie te lotniska oferują tanie loty, a w niektórych przypadkach ceny mogą być naprawdę atrakcyjne, zwłaszcza w przypadku rezerwacji biletów z wyprzedzeniem. Warto także śledzić oferty linii lotniczych oraz porównywać ceny między różnymi przewoźnikami, aby znaleźć najkorzystniejsze oferty.
 
-
+<a href="https://safeweb.norton.com/report/show?url=aeroporty.pl">safe check<a/>
